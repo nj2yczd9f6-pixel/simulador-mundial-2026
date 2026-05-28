@@ -1,0 +1,1 @@
+# simulador-mundial-2026
